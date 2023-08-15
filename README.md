@@ -5,7 +5,7 @@
 
 Mis gana de aprender y saber como funcionan las cosas dentro de la informatica me llevo a estudiar la carrera de ING. Desarrollo y Gestión de Software impartido la Universidad Tecnologia del Sur del Estado de México. El cual a sido un gran paso en mi carrera estudiantil.<br>
 
-Soy conciente de que en el mundo de la tecnologia, la evolucion<br>es contante. Por eso, me mantengo actualizado sobre las ultimas<br>tendencias y tecnicas para garantizar que mis habilidades esten siempre al dia. Mi mentalidad abierta y curiosa me permite<br>adaptarme rapidamente a nuevas tecnologias y abordar problemas complejos con creatividad y preseverancia.<br>
+Soy conciente de que en el mundo de la tecnologia, la evolucion es contante. Por eso, me mantengo actualizado sobre las ultimas<br>tendencias y tecnicas para garantizar que mis habilidades esten siempre al dia. Mi mentalidad abierta y curiosa me permite<br>adaptarme rapidamente a nuevas tecnologias y abordar problemas complejos con creatividad y preseverancia.<br>
 
 Si estas buscando a alguien motivado, con gran pasion y curiosidad por la progranacion he informatica, con ansias de aprender y crecer. !Vas por buen camino! Estoy emocionado por la oportunidad de contribuir en proyectos desafiantes y poner en practica mis habilidades para resolver problemas de manera eficiente y elegante.<br>
 
